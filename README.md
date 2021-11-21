@@ -1,2 +1,4 @@
-# made-by-justin
-a discord nitro stealer that i made and I DO NOT RECOMEND THIS AND USE AT YOUR OWN RISK!
+# made-by-justin!
+WHAT EVER FILES I MAKE ARE COPY RIGHT AND SAFE USE AT YOUR OWN RIKS OF GETTING BANNED!
+
+thank you for choosing justin as your guide!
